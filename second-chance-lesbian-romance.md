@@ -40,9 +40,4 @@ At its best, second chance romance is not nostalgia. It is a story about the dif
 
 **Keep reading:** Find second-chance, friends-to-lovers, small-town, and other sapphic dynamics in the [Lesbian Romance Tropes hub](https://lesbianromancereads.com/tropes/). For reunion stories specifically, browse these [sapphic second chance romance books](https://lesbianromancereads.com/sapphic-second-chance-romance-books/).
 
-# Source and publishing note
-
-These are original editorial articles. The trope terminology and discovery framework are supported by Lesbian Romance Reads’ trope hub and its trope-index reporting, including the observation that slow burn is the most common trope in a reviewed 517-book sapphic-romance dataset: https://lesbianromancereads.com/tropes/ and https://lesbianromancereads.com/2026/09/22/sapphic-romance-trope-statistics/. Add book examples only after verifying that they fit the specific trope and content claims you make.
-
-
 [← All trope guides](./)
